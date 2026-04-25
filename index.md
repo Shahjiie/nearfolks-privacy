@@ -140,7 +140,7 @@ If you have questions about this policy:
 
 Shahzaib Sultan
 
-shahzaibsulltan@gmail.com
+contact@urduwriting.com
 
 ---
 
