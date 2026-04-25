@@ -18,7 +18,8 @@ We receive no data. We cannot read, sell, or lose what we never have.
 
 Nearfolks is an Android application developed by Shahzaib Sultan. The app is a privacy-first personal relationship notebook — it helps you remember the people in your life without sending any information to us or anyone else.
 
-Contact: shahzaibsulltan@gmail.com
+Contact: contact@urduwriting.com
+
 
 ---
 
